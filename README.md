@@ -6,6 +6,8 @@
 
 ##### :heart: :point_right: 【永久】 ：https://baihtv.xyz
 
+##### :heart: :point_right: 【友情链接】 ：http://baihtv.com
+
 ##### :heart: :point_right: 【邮箱联系方式】 ：aavv8090@gmail.com
 
 #### :sunglasses:重要提醒:sunglasses:收藏本页面，避免迷路！
