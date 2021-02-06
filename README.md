@@ -8,7 +8,7 @@
 
 ##### :heart: :point_right: 【地址四】 ：https://bhav.buzz
 
-##### :heart: :point_right: 【永久】 ：https://baihtv.xyz
+##### :heart: :point_right: 【永久地址】 ：https://baihtv.xyz
 
 ##### :heart: :point_right: 【友情链接】 ：http://baihtv.com  https://baihav.xyz
 
