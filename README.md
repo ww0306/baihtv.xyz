@@ -2,9 +2,9 @@
 
 ##### :heart: :point_right: 【地址一】 ：https://boshiav.xyz
 
-##### :heart: :point_right: 【地址二】 ：https://boshitv.xyz
+##### :heart: :point_right: 【地址二】 ：https://boshiav.xyz
 
-##### :heart: :point_right: 【地址三】 ：https://boshiav.com
+##### :heart: :point_right: 【地址三】 ：https://bhav.buzz
 
 ##### :heart: :point_right: 【地址四】 ：https://bhav.buzz
 
