@@ -1,12 +1,12 @@
 ##### :sunglasses::sunglasses:最新发布地址:sunglasses::sunglasses:
 
-##### :heart: :point_right: 【地址一】 ：https://qq.com.bh80.xyz
+##### :heart: :point_right: 【地址一】 ：https://bh05.xyz
 
-##### :heart: :point_right: 【地址二】 ：https://qq.com.bh80.xyz
+##### :heart: :point_right: 【地址二】 ：https://bh55.xyz
 
-##### :heart: :point_right: 【地址三】 ：https://qq.com.bh80.xyz
+##### :heart: :point_right: 【地址三】 ：https://bh666.xyz
 
-##### :heart: :point_right: 【地址四】 ：https://boshiav.xyz
+##### :heart: :point_right: 【地址四】 ：https://boshitv.xyz
 
 ##### :heart: :point_right: 【永久地址】 ：https://baihtv.xyz
 
