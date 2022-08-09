@@ -1,6 +1,6 @@
 ##### :sunglasses::sunglasses:最新发布地址:sunglasses::sunglasses:
 
-##### :heart: :point_right: 【地址一】 ：https://bh05.xyz
+##### :heart: :point_right: 【地址一】 ：https://qq.com.bh150.com
 
 ##### :heart: :point_right: 【地址二】 ：https://bh55.xyz
 
