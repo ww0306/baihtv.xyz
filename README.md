@@ -10,7 +10,7 @@
 
 ##### :heart: :point_right: 【永久地址】 ：https://baihtv.xyz
 
-##### :heart: :point_right: 【友情链接】 ：https:mifengtv.xyz
+##### :heart: :point_right: 【友情链接】 ：https://mifengtv.xyz
 
 ##### :heart: :point_right: 【邮箱联系方式】 ：aavv8090@gmail.com
 
