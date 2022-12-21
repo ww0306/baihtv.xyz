@@ -6,9 +6,9 @@
 
 ##### :heart: :point_right: 【地址三】 ：https://jz90.xyz
 
-##### :heart: :point_right: 【地址四】 ：https://boshitv.xyz
+##### :heart: :point_right: 【地址四】 ：https://bs201.top
 
-##### :heart: :point_right: 【永久地址】 ：https://baihtv.xyz
+##### :heart: :point_right: 【永久地址】 ：https://mifeng10.top
 
 ##### :heart: :point_right: 【友情链接】 ：https://mifengtv.xyz
 
