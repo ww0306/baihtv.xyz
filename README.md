@@ -10,7 +10,7 @@
 
 ##### :heart: :point_right: 【永久地址】 ：https://mifeng10.top
 
-##### :heart: :point_right: 【友情链接】 ：https://mifengtv.xyz
+##### :heart: :point_right: 【友情链接】 ：https://bh03.xyz
 
 ##### :heart: :point_right: 【邮箱联系方式】 ：niso000aa@gmail.com
 
