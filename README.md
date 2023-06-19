@@ -15,4 +15,4 @@
 #### :sunglasses:重要提醒:sunglasses:收藏本页面，避免迷路！
 
 
-:e-mail: __邮箱联系方式: aavv8090@gmail.com （以上地址无法访问请发送任意内容获取最新地址）__
+:e-mail: __邮箱联系方式: niso000aa@gmail.com （以上地址无法访问请发送任意内容获取最新地址）__
