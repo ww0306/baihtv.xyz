@@ -1,8 +1,8 @@
 ##### :sunglasses::sunglasses:最新发布地址:sunglasses::sunglasses:
 
-##### :heart: :point_right: 【地址一】 ：https://qq.com.bhtv15.top
+##### :heart: :point_right: 【地址一】 ：https://qq.com.bhtv17.top
 
-##### :heart: :point_right: 【地址二】 ：https://qq.com.jztv12.top
+##### :heart: :point_right: 【地址二】 ：https://qq.com.jztv16.top
 
 ##### :heart: :point_right: 【地址三】 ：https://bs210.top
 
