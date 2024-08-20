@@ -4,9 +4,9 @@
 
 ##### :heart: :point_right: 【地址二】 ：https://qq.com.bhtv21.top
 
-##### :heart: :point_right: 【地址三】 ：https://bh997.top
+##### :heart: :point_right: 【地址三】 ：https://bh81.xyz
 
-##### :heart: :point_right: 【永久地址】 ：https://bh710.xyz
+##### :heart: :point_right: 【永久地址】 ：https://bh71.xyz
 
 ##### :heart: :point_right: 【友情链接】 ：
 
