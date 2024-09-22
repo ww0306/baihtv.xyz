@@ -8,7 +8,7 @@
 
 ##### :heart: :point_right: 【永久地址】 ：https://bh71.xyz
 
-##### :heart: :point_right: 【友情链接】 ：
+##### :heart: :point_right: 【友情链接】 ：https://suv31.com
 
 ##### :heart: :point_right: 【邮箱联系方式】 ：niso000aa@gmail.com
 
