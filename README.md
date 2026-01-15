@@ -1,14 +1,12 @@
 ##### :sunglasses::sunglasses:最新发布地址:sunglasses::sunglasses:
 
-##### :heart: :point_right: 【地址一】 ：https://qq.com.bhtv20.top
+##### :heart: :point_right: 【地址一】 ：https://bh44.top
 
-##### :heart: :point_right: 【地址二】 ：https://qq.com.bhtv21.top
+##### :heart: :point_right: 【地址二】 ：https://bh6060.top
 
-##### :heart: :point_right: 【地址三】 ：https://bh81.xyz
+##### :heart: :point_right: 【地址三】 ：https://bh8080.top
 
-##### :heart: :point_right: 【永久地址】 ：https://bh71.xyz
 
-##### :heart: :point_right: 【友情链接】 ：https://suv31.com
 
 ##### :heart: :point_right: 【邮箱联系方式】 ：niso000aa@gmail.com
 
